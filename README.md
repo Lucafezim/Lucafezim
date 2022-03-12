@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Lucafezim 😁
+## Bem-vindo(a) ao perfil de Lucafezim  ☕️🥰
 
  <div>
   <a href="https://github.com/Lucafezim">
